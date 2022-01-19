@@ -10,3 +10,4 @@ This might be a useful low-carb pancake recipe.
 ½ teaspoon cinnamon
 ½ teaspoon Sweetleaf - stevia sweetener (or 2 tablespoons regular sugar)
 butter and syrup (sugar free syrup for low carb option)
+ 
